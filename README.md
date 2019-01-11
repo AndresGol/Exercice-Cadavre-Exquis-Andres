@@ -5,17 +5,17 @@
 
 __L'enfant sort violemment da la maison__
 
-*Au coin de rue un chien aperçoit la scene*
+*Au coin de la rue un chien aperçoit la scene*
 
 Le conducteur d'un camion de glaces arrête soudainement la musique
 
-*Silence totale*
+*Le Silence est total*
 
 Le chien marche
 
 Quand _soudain_ une alarme retentit !
 
-Le chien arrête la camion de glaces, et le lapin s'introduit dedans par la porte arrière
+Le chien arrête le camion de glaces, et le lapin s'introduit dedans par la porte arrière.
 
 Le lapin (appelons le __panpan__) sort du camion avec des sacs remplis de glaces.
 
@@ -29,7 +29,8 @@ Mais, ce n'était pas vraiment sa faute, il était atteint d'incontinence urinai
 
 Par ailleurs, il a mangé toutes les glaces dans un grave accès d'hypoglycémie. 
 
-Désolé d'avoir mangé toutes les glaces et rendus tristes les petits enfants, il passa l'après-midi entière à jouer avec eux et à les faire rire, avant de se faire à diner... **du lapin !!**
+Désolé d'avoir mangé toutes les glaces et rendus tristes les petits enfants,
+il passa l'après-midi entière à jouer avec eux et à les faire rire, avant de se faire à diner... **du lapin à la Liegoise!!**
 
 
 
