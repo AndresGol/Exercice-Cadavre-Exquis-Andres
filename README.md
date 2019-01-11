@@ -19,4 +19,8 @@ Le chien arrête la camion de glaces, et le lapin s'introduit dedans par la port
 
 Le lapin (appelons le __panpan__) sort du camion avec des sacs remplis de glaces.
 
+Vu que le Panpan n'est pas méchant, il avait pris le temps de faire la vaisselle pour compenser son *crime*.
 
+En effet, le but du vol de sacs de glaces était de les redistribuées à tous les enfants pauvres du quartier **MAIS**
+
+Le chien méchant décida d'uriner sur la vaisselle et de mangers **TOUUUUUUTES** les glaces.
