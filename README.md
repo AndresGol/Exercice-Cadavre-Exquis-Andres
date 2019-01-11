@@ -13,5 +13,10 @@ Le conducteur d'un camion de glaces arrête soudainement la musique
 
 Le chien marche
 
+Quand _soudain_ une alarme retentit !
+
+Le chien arrête la camion de glaces, et le lapin s'introduit dedans par la porte arrière
+
+Le lapin (appelons le __panpan__) sort du camion avec des sacs remplis de glaces.
 
 
