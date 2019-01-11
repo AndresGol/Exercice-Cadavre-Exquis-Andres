@@ -24,3 +24,13 @@ Vu que le Panpan n'est pas méchant, il avait pris le temps de faire la vaissell
 En effet, le but du vol de sacs de glaces était de les redistribuées à tous les enfants pauvres du quartier **MAIS**
 
 Le chien méchant décida d'uriner sur la vaisselle et de mangers **TOUUUUUUTES** les glaces.
+
+Mais, ce n'était pas vraiment sa faute, il était atteint d'incontinence urinaire et n'a plus pu se controler.
+
+Par ailleurs, il a mangé toutes les glaces dans un grave accès d'hypoglycémie. 
+
+Désolé d'avoir mangé toutes les glaces et rendus tristes les petits enfants, il passa l'après-midi entière à jouer avec eux et à les faire rire, avant de se faire à diner... **du lapin !!**
+
+
+
+
